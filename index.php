@@ -37,7 +37,7 @@
              U autentičnom, zanimljivom i toplom ambijentu, u kome je svaki detalj posebno osmišljen i unikatno ručno izrađen, 
              pruža vam poseban doživljaj i ako samo svratite da popijete kafu. Picamanija je tu da postane nezaobilazni deo dana.
              Picamanija je ušuškana u jedan od najlepših delova Banovog Brda, u ulici Požeška 41. Pokrenuta je kao porodični
-             biznis koji predstavlja udružena znanja i iskustva iz oblasti ugostiteljstva, dizajna i marketinga porodice Bogićević.
+             biznis koji predstavlja udružena znanja i iskustva iz oblasti ugostiteljstva, dizajna i marketinga porodice Radosavljević.
 </p>
 <hr class="bottom-line">
   
